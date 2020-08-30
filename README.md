@@ -34,4 +34,4 @@
 
   
 
-如果有帮助到你 欢迎赞赏 http://33.al/donate
+如果有帮助到你 欢迎赞赏 https://www.foxscallion.top/
